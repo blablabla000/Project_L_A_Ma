@@ -10,4 +10,6 @@ Hello, I am Anton Lozada, a member of this group. I am currently grade 9 ~~singl
 
 Hiii, my name is Faye Michelle Abian, and I am a member of this group. I'm a grade 9 student.
 
+>  
+
 Hello! I am Samantha Nicole M. Magallon, a 9th grade student and a member of this group.
