@@ -7,3 +7,5 @@ Hello, I am Anton Lozada, a member of this group. I am currently grade 9 ~~singl
 <sup>_ehe te nandayo_ (i used to play genshin a lot)</sup>
 
 >  
+
+Hiii, my name is Faye Michelle Abian, and I am a member of this group. I'm a grade 9 student.
