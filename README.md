@@ -1,4 +1,9 @@
 # Project_L_A_Ma
 <sub> _Project by Lozada, Abian & Magallon_ </sub>
 
-Hello, I am Anton Lozada, a member of this group. I am currently grade 9 ~~single btw~~. I play . Im a lama :) 
+>  
+
+Hello, I am Anton Lozada, a member of this group. I am currently grade 9 ~~single btw~~. I play instruments as a hobby and i also play valorant :) <br>
+<sup>_ehe te nandayo_ (i used to play genshin a lot)</sup>
+
+>  
